@@ -1,4 +1,4 @@
-# 
+# Professionnel Foxit PDF Editor extensions pour Mac OS | Mis à jour Foxit PDF Editor extensions pour PC Windows. Avec planification des rapports et support multi-devises — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
